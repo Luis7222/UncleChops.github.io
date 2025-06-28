@@ -1,2 +1,0 @@
-# UncleChops
-Uncle Chops Restaurant
